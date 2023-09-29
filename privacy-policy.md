@@ -21,4 +21,3 @@ We may update this Privacy Policy from time to time to reflect changes in our pr
 ## 4. Contact Us
 
 If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at cyrus.m.nielsen@gmail.com.
-.
